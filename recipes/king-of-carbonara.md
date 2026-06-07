@@ -1,5 +1,9 @@
 # 🍝 킹오브 까르보나라 (King of Carbonara)
 
+> 🎬 **유튜브 영상**: https://www.youtube.com/watch?v=uF6HSy_rn0g (육식맨)
+> ⏱️ **총 소요시간: 약 25~30분**
+> 🍽️ **분량: 2인분**
+
 > 출처: 로마 '카르보나라의 왕' **루치아노 모노실리오(Luciano Monosilio)** 셰프의 레스토랑 레시피 카드
 > 영상 참고: 육식맨 유튜브 (https://www.youtube.com/watch?v=uF6HSy_rn0g)
 > **이 버전은 관찰레를 직접 만들지 않고 사서 쓰는 버전입니다.**
